@@ -7,9 +7,9 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on a minecraft hacked client! <br><br>
-- 🌱 I’m currently trying to learn java ... <br><br>
-- 👯 Buy some accounts fr: https://discord.gg/vryzeQZ2tv ... <br><br>
+- 🔭 Leaking shit people don't care about <br><br>
+- 🌱 Selling minecraft accounts for no money basically! ... <br><br>
+- 👯 Buy some accounts fr: https://discord.gg/GRt4tHEXE4 ... <br><br>
 - 📫 How to reach me: Contact me on VindDev@protonmail.com
 - ⚡ Fun fact: I love exploring new stuff
 
